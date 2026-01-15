@@ -9,4 +9,4 @@
 
 ## Contact
 Email: its.big.e21@gmail.com
-- DailyBoost is run by a small team. We aim to respond to inquiries within a few days, but delays may occ
+- DailyBoost is run by a small team. We aim to respond to inquiries within a few days, but delays may occur.
